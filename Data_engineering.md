@@ -6,7 +6,7 @@
 
 ---
 
-## 📌 Before You Start — The Big Picture
+## 📌 Before You Start 
 
 ### Tell Her This on Day 0 (Before Anything)
 
